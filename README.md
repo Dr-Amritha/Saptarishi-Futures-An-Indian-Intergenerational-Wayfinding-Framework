@@ -9,6 +9,6 @@ Folklores (Panchatantra, Jataka tales, Baul, Bhil and tribal narratives)
 
 Generational frameworks (Ashrama Dharma, the Guru-Shishya Parampara)
 
-Modern intergenerational justice principles (as outlined in Think Beyond)
+Modern intergenerational justice principles
 
 We develop a “Saptarishi Futures” framework: a 7-principle-based model (inspired by the 7 sages of Indian mythology) to navigate long-term societal wellbeing, drawing on moksha-based dharmic thinking for future generations.
